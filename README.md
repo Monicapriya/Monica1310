@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Monica Priya</h1>
-<h3 align="center">An Ambitious and Passionate developer</h3>
+<h3 align="center">An Ambitious and Passionate Full stack developer</h3>
 
 
 
