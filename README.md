@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **monicapriyar1310@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1OT1jzajJLGvCZh-NiftIHpvpDXzztBNy/edit](https://docs.google.com/document/d/1OT1jzajJLGvCZh-NiftIHpvpDXzztBNy/edit)
+- 📄 Know about my experiences [https://drive.google.com/file/d/156tJh5L03UNu5KzlGI4PFsZroeScrtJW/view?usp=sharing](https://drive.google.com/file/d/156tJh5L03UNu5KzlGI4PFsZroeScrtJW/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
