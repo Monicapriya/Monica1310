@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Full stack development**
 
-- 👨‍💻 All of my projects are available at [https://my-protfolio-orpin.vercel.app/](https://my-protfolio-orpin.vercel.app/)
+- 👨‍💻 All of my projects are available at [https://my-protfolio-monica1310.vercel.app/](https://my-protfolio-monica1310.vercel.app/)
 
 - 📫 How to reach me **monicapriyar1310@gmail.com**
 
